@@ -1,0 +1,11 @@
+# MAKALAH-TENTANG-PENERAPAN-FISIKA-DALAM-BIDANG-TEKNIK-KOMPUTER
+![WhatsApp Image 2024-08-23 at 16 19 15](https://github.com/user-attachments/assets/8b7ddd86-b3bb-4d8f-abfe-d25be5e4a210)
+![WhatsApp Image 2024-08-23 at 16 19 15 (1)](https://github.com/user-attachments/assets/78f9fc20-f1e8-43da-9c25-64089345ad0f)
+![WhatsApp Image 2024-08-23 at 16 19 15 (2)](https://github.com/user-attachments/assets/228e3c11-bcfd-493b-b5d6-20961810453b)
+![WhatsApp Image 2024-08-23 at 16 19 14](https://github.com/user-attachments/assets/aaebadc0-9c94-4e82-b96c-b148f3da5dce)
+![WhatsApp Image 2024-08-23 at 16 19 14 (1)](https://github.com/user-attachments/assets/e3b9de68-c5b8-4ea3-a221-e2b16586a3fd)
+![WhatsApp Image 2024-08-23 at 16 26 29](https://github.com/user-attachments/assets/c29fc9a2-d6e5-4ba3-b9be-d2a9b36b5a73)
+![WhatsApp Image 2024-08-23 at 16 19 14 (2)](https://github.com/user-attachments/assets/51b9a852-7bb9-4de9-b67b-1648e8881ab0)
+![WhatsApp Image 2024-08-23 at 16 19 12](https://github.com/user-attachments/assets/1f4d5293-83aa-4554-bde9-940b60785e67)
+![WhatsApp Image 2024-08-23 at 16 19 12 (1)](https://github.com/user-attachments/assets/26fe311d-11e8-49c7-bcb9-d048997f954e)
+![WhatsApp Image 2024-08-23 at 16 19 11](https://github.com/user-attachments/assets/5bbab05e-2b57-44c1-b35d-5fbcdc34952a)
